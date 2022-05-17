@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Senkottuvelu
-- 👀 I’m interested in Data Science
+- 👀 I’m interested in Data Analytics
 - 🌱 I’m currently looking for Job
 - 📫 How to reach me ... Here is my contact info : 8870294562, Mail : senkottuvelu93@gmail.com
 
